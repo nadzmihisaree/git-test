@@ -1,2 +1,1 @@
-Hello !
-I"m Nanduni Gajanayake.
+my name is Thushamini Chathushika.my school is sujatha vidyalaya.
